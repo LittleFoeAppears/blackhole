@@ -7,3 +7,6 @@ No secrets
 To take
 To our graves
 And I have no poem myself
+- In shadows deep, where secrets lie,
+- Encryption stood, unbroken, high.
+- A fortress strong, in digital land,
